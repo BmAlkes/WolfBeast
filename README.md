@@ -1,1 +1,1 @@
-# WolfBeast
+# WolfBeast.
